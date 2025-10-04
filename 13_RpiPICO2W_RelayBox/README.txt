@@ -1,0 +1,1 @@
+Modern Lampshade with Indian type bulb holder.
